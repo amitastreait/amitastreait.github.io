@@ -1,2 +1,2 @@
-# amitastreait.github.io
+# Amit Singh
 Amit Singh Personal Portfolio
